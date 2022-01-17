@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+🎦 Films 
+   - Hacksaw Ridge
+   - Inglourious Basterds
+   - Amélie
+   - Interstellar
+   - 500 Days of Summer
